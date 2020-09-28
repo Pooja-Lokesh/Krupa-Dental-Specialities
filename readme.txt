@@ -1,1 +1,1 @@
-# Krupa Dental Specialities
+Krupa Dental Specialities
